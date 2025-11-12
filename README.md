@@ -1,4 +1,4 @@
-Sou uma pesquisadora interdisciplinar com atuação nas áreas de ciência da informação, tecnologia, gestão pública, arquivologia, educação e preservação digital do patrimônio cultural.
+### Olá! Sou uma pesquisadora interdisciplinar e atuo nas áreas de ciência da informação, tecnologia, gestão pública, arquivologia, educação e preservação digital do patrimônio cultural.
 
 ### Formação Acadêmica e Especializações
 

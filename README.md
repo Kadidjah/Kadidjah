@@ -1,4 +1,4 @@
-**Kadidja Valéria é uma pesquisadora interdisciplinar com atuação nas áreas de ciência da informação, tecnologia, gestão pública, arquivologia, educação e preservação digital do patrimônio cultural.
+Sou uma pesquisadora interdisciplinar com atuação nas áreas de ciência da informação, tecnologia, gestão pública, arquivologia, educação e preservação digital do patrimônio cultural.
 
 ### Formação Acadêmica e Especializações
 
